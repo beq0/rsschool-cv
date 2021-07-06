@@ -1,0 +1,1 @@
+[https://beq0.github.io/rsschool-cv/cv](https://beq0.github.io/rsschool-cv/cv)
